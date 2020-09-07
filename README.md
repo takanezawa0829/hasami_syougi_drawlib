@@ -1,0 +1,1 @@
+# hasami_syougi
